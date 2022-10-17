@@ -1,1 +1,1 @@
-# BluePhone-Online-Store
+BLUEPHONE ONLINE STORE.
